@@ -1,1 +1,0 @@
-# Praktichna4
